@@ -13,10 +13,10 @@ When I’m not at the computer, you’ll probably find me gaming, enjoying a mov
 
 ---
 
-## 🎓 Experience
+## ✨ Experience
 
-**Zoomers**  
-📘 *Full Stack Developer Internship* (April 2025 – June 2025)  
+**💻 Zoomers**  
+*Full Stack Developer Internship* (April 2025 – June 2025)  
 
 ---
 
